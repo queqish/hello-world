@@ -1,4 +1,5 @@
 # hello-world
-Just another repository
-Super tekst, polecam serdecznie, pozdrawiam.
+Just another repositoryyyyyyyyyyyyyyyyyyyyyyyyy
+Super tekst, polecam serdecznie, pozdro 600.
 ~Pablo 2k18
+Plus dodatkowe informacje z kolejnego dnia.
